@@ -209,4 +209,4 @@ Far Cry is available as a full free version with all features and updates includ
 Don't miss out on the action! Download Far Cry now and embark on your adventure in the stunning South Pacific!
 
 ---
-**Last updated:** 2026-09-29 15:31:18 UTC
+**Last updated:** 2026-09-29 20:32:54 UTC
